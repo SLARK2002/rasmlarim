@@ -1,0 +1,2 @@
+# rasmlarim
+barcha rasmlar
